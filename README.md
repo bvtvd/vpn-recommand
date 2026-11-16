@@ -40,7 +40,7 @@
 
 ## 注册地址
 
-👉 **https://xn--4gqx1hgtfdmt.com/#/register?code=EFVGwV4V**
+👉 **[立即注册免费试用 →](https://xn--4gqx1hgtfdmt.com/#/register?code=EFVGwV4V)**
 
 ## 使用须知
 
